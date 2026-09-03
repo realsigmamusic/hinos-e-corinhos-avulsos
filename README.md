@@ -31,36 +31,41 @@ Quanto ao **Hinos e Corinhos Avulsos** encontrei um exemplar físico sendo vendi
 
 ### HINOS E CORINHOS AVULSOS
 
+> **⚠️ NOTA DE PRESERVAÇÃO HISTÓRICA:** 
+> No exemplar físico original utilizado para esta digitalização, as folhas correspondentes ao final do cânticos 100 ao 109 foram perdidas pela ação do tempo e uso. O registro avança diretamente para o número 110.
+
+- **101.** Oh, Igreja Apostólica, ide avante
+- **102.** Desde o dia em que aceitei Jesus
+- **103.** A minh'alma está cheia de paz
+- **104.** O anjo do Senhor, o anjo do Senhor
+- **105.** Filho meu, dá-me o teu coração
+- **106.** Eu sou "cruzado"
+- **107.** Bem de manhã o Senhor está conosco
+- **108.** Muitas vezes sou tentado, mas
+- **109.** Envia o teu poder
+
 #### 62. MAIS DE CRISTO 
 - Video de 2018 com a melodia e letra correta em 6/8 (ritmo lento) https://www.youtube.com/watch?v=_UUqU5hCTEk&t
 - Gravação de 1975 com melodia adaptada para 4/4 e uma parte extra com outra letra (ritmo mais rápido) https://music.youtube.com/watch?v=7uOE8Fn9XJo&list=RDAMVM7uOE8Fn9XJo
 - Não confundir com o hino 152 do Foursquare Hymnal de 1957, pois este é outra melodia e outra letra, somente o título é parecido.
 ```
-Eu quero mais e mais de Cristo 
-Eu quero mais o seu poder 
-Eu quero mais da sua presença 
-Eu quero mais do seu viver
+Eu quero mais e mais de Cristo,
+Eu quero mais o seu poder,
+Eu quero mais da sua presença, 
+Eu quero mais do seu viver.
 ```
 
----
-
-#### QUEM DA COM ALEGRIA
+#### 179. QUEM DA COM ALEGRIA
 - Gravação de 1980 https://music.youtube.com/watch?v=D3hcgSSt95c
 - Apenas o coro é cantado nos cultos, ignorando completamente a existência das estrofes.
-- Letra original é `Quem oferta com alegria` porém é muito cantado como: `Quem dá com alegria`
+- Letra original é `Quem oferta com alegria` porém livreto aparece como: `Quem dá com alegria`
 ```
-Quem dá com alegria como o sol brilhará, 
-como o sol brilhará, como o sol brilhará
-Quem dá com alegria como o sol brilhará, 
-e Deus recompensará
-```
+1. Quem dá com alegria como o sol brilhará.
+   como o sol brilhará, como o sol brilhará.
+   Quem dá com alegria como o sol brilhará.
+   e Deus recompensará.
 
-#### EU VENHO TRAZER
-- Canção em 3/4 que a letra foi totalmente modificada para o contexto de dízimos e ofertas, e o compasso trocado para 4/4, além de mudar de um ritmo lento para um ritmo mais rápido.
-- Gravação de 1978 (Nome original: EU VENHO A DIZER) https://music.youtube.com/watch?v=nWuXdLrUGeA
-```
-Eu venho trazer, eu venho trazer para o meu salvador
-A minha oferta, a minha oferta de fé e amor 
-Eu venho trazer, eu venho trazer para o meu salvador
-Aceita senhor, aceita senhor minha oferta de amor
+2. Quem ora sempre, sempre...
+
+3. Quem prega o Evangelho...
 ```

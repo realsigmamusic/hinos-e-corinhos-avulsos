@@ -5,9 +5,9 @@ https://evangelhoquadrangular.com.br/sobre-hino-oficial/ Este site cita a exist�
 
 > A música e a letra do Hino Quadrangular são de autoria da fundadora da igreja, Aimée Semple McPherson. A tradução da letra foi feita por um dos pastores do início da obra no Brasil. A história do Hino conta com duas curiosidades: Ele foi publicado em 1955, só a partir da quarta edição do hinário oficial da Cruzada Nacional de Evangelização, departamento da IEQ entre os anos de 1952 e 1954. Na primeira tradução, constava a palavra “tendas” na segunda estrofe do hino. Recentemente, a palavra “tendas” foi substituída por “templos”.
 
-- **Hinos e Corinhos Avulsos - 1952:** scan não localizado  
-- **Hinos e Corinhos Avulsos - 1953:** scan não localizado  
-- **Hinos e Corinhos Avulsos - 1954:** scan não localizado  
+- **Hinos e Corinhos Avulsos - 1952:** scan não localizado
+- **Hinos e Corinhos Avulsos - 1953:** scan não localizado
+- **Hinos e Corinhos Avulsos - 1954:** scan não localizado
 - **Hinos e Corinhos Avulsos - 1955:** scan não localizado
 
 A principio minha hipótese é que o [FOURSQUARE HYMNAL OF STANDARD SONGS OF EVANGELISM](https://www.abebooks.com/FOURSQUARE-HYMNAL-STANDARD-SONGS-EVANGELISM-COMPILED/32421327602/bd) seja o maretial original. porém não foi encontrato nenhum scan ou foto pra fazer uma comparação, apenas um exemplar fisico sendo vendido por US$ 75.00 fora do Brasil. Por isso não tenho como confirmar nada ainda.
@@ -76,6 +76,19 @@ Eu tenho um amigo que ama
 Me ama, me ama.
 Eu tenho um amigo que ama
 Seu nome é Jesus
+```
+
+#### 118. FORMOSA
+- Infelizmente não encontrei nenhuma gravação ainda
+```
+Formosa, formosa, formosa 
+É a palavra do Senhor 
+Formoso, formoso, formoso 
+É o evangelho de Jesus
+Divina, divina, divina
+É a doce paz que à alma dá
+Divino, divino, divivo
+Será encontrar o nosso Rei
 ```
 
 #### 179. QUEM DA COM ALEGRIA

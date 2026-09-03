@@ -45,8 +45,7 @@ Quanto ao **Hinos e Corinhos Avulsos** encontrei um exemplar físico sendo vendi
 - **109.** Envia o teu poder
 
 #### 62. MAIS DE CRISTO 
-- Video de 2018 com a melodia e letra correta em 6/8 (ritmo lento) https://www.youtube.com/watch?v=_UUqU5hCTEk&t
-- Gravação de 1975 com melodia adaptada para 4/4 e uma parte extra com outra letra (ritmo mais rápido) https://music.youtube.com/watch?v=7uOE8Fn9XJo&list=RDAMVM7uOE8Fn9XJo
+- https://www.youtube.com/watch?v=_UUqU5hCTEk&t
 - Não confundir com o hino 152 do Foursquare Hymnal de 1957, pois este é outra melodia e outra letra, somente o título é parecido.
 ```
 Eu quero mais e mais de Cristo,
@@ -55,10 +54,32 @@ Eu quero mais da sua presença,
 Eu quero mais do seu viver.
 ```
 
+#### 110. O MUNDO AGORA ESTÁ DE PARABÉNS
+- https://music.youtube.com/watch?v=HaPAr69Bi3E
+```
+O mundo agora está de parabéns, 
+Porque um novo povo Deus levantou, 
+Anunciando que Jesus em breve vem 
+E está tirando todo pecado e dôr 
+E os demônios são expulsos também 
+Por êste povo que Deus levantou; 
+E o poder do alto céu vem hoje, vem, 
+Vem confirmar que Jesus já operou.
+
+Confessa, confessa Que Jesus Cristo hoje te libertou } bis
+```
+
+#### 112. EU TENHO UM AMIGO QUE ME AMA
+- https://music.youtube.com/watch?v=AWVIVcvBecY
+```
+Eu tenho um amigo que ama
+Me ama, me ama.
+Eu tenho um amigo que ama
+Seu nome é Jesus
+```
+
 #### 179. QUEM DA COM ALEGRIA
-- Gravação de 1980 https://music.youtube.com/watch?v=D3hcgSSt95c
-- Apenas o coro é cantado nos cultos, ignorando completamente a existência das estrofes.
-- Letra original é `Quem oferta com alegria` porém livreto aparece como: `Quem dá com alegria`
+- https://music.youtube.com/watch?v=D3hcgSSt95c
 ```
 1. Quem dá com alegria como o sol brilhará.
    como o sol brilhará, como o sol brilhará.
@@ -68,4 +89,13 @@ Eu quero mais do seu viver.
 2. Quem ora sempre, sempre...
 
 3. Quem prega o Evangelho...
+```
+
+#### 185. NUNCA MAIS DEIXAREI JESUS
+- https://music.youtube.com/watch?v=WSWyA3pSg9M
+```
+Nunca mais, nunca mais deixarei Jesus 
+Nunca mais, nunca mais deixarei a cruz. 
+Eu tenho a certeza no meu coração 
+De ao chegar no céu, receber meu galardão.
 ```

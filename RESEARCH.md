@@ -3,7 +3,7 @@
 ## HINOS
 
 ### 93. NOITE FELIZ
-Original: SILENT NIGHT - Foursquare Hymnal 1957 nº 346
+- Original: SILENT NIGHT - Foursquare Hymnal 1957 nº 346
 ```
 1. Noite feliz! Noite feliz!
    Oh Senhor! Deus de amor
@@ -28,10 +28,10 @@ Original: SILENT NIGHT - Foursquare Hymnal 1957 nº 346
 ```
 
 ### 100. HINO DA CRUZADO
-Letra: Adiel A. Oliveira
-Música: Aimée Semple McPherson
-Original: PREACH THE WORD - Foursquare Hymnal 1957 nº 2
-> Atualmente é o Hino Oficial da Igreja do Evangelho Quadrangular
+- Letra: Adiel A. Oliveira
+- Música: Aimée Semple McPherson
+- Original: PREACH THE WORD - Foursquare Hymnal 1957 nº 2
+- Atualmente é o Hino Oficial da Igreja do Evangelho Quadrangular
 ```
 1. Eia, crentes, avançar!
    Nada de temer,
@@ -59,9 +59,9 @@ E com Êle nós havemos sempre de reinar!
 ```
 
 ### 200. MARCHAI
-Letra: Adiel A. Oliveira
-Música: Aimée Semple McPherson
-Original: FORWARD MARCH Foursquare Hymnal 1957 nº 60
+- Letra: Adiel A. Oliveira
+- Música: Aimée Semple McPherson
+- Original: FORWARD MARCH Foursquare Hymnal 1957 nº 60
 ```
 1. Eis que á luta hoje sai
    Batalhão Quadrangular.

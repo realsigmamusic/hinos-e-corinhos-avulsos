@@ -29,7 +29,7 @@ Quanto ao **Hinos e Corinhos Avulsos** encontrei um exemplar físico sendo vendi
 
 ---
 
-### HINOS E CORINHOS AVULSOS
+### [HINOS E CORINHOS AVULSOS](./Hinos%20e%20Corinhos%20Avulsos%20-%201960.pdf)
 
 > **⚠️ NOTA DE PRESERVAÇÃO HISTÓRICA:** 
 > No exemplar físico original utilizado para esta digitalização, as folhas correspondentes ao final do cânticos 100 ao 109 foram perdidas pela ação do tempo e uso. O registro avança diretamente para o número 110.
@@ -44,71 +44,6 @@ Quanto ao **Hinos e Corinhos Avulsos** encontrei um exemplar físico sendo vendi
 - **108.** Muitas vezes sou tentado, mas
 - **109.** Envia o teu poder
 
-#### 62. MAIS DE CRISTO 
-- https://www.youtube.com/watch?v=_UUqU5hCTEk&t
-- Não confundir com o hino 152 do Foursquare Hymnal de 1957, pois este é outra melodia e outra letra, somente o título é parecido.
-```
-Eu quero mais e mais de Cristo,
-Eu quero mais o seu poder,
-Eu quero mais da sua presença, 
-Eu quero mais do seu viver.
-```
+#### [CLIQUE AQUI PARA LER O ÍNDICE COMPLETO EM ORDEM ALFABÉTICA](./INDEX.md)
 
-#### 110. O MUNDO AGORA ESTÁ DE PARABÉNS
-- https://music.youtube.com/watch?v=HaPAr69Bi3E
-```
-O mundo agora está de parabéns, 
-Porque um novo povo Deus levantou, 
-Anunciando que Jesus em breve vem 
-E está tirando todo pecado e dôr 
-E os demônios são expulsos também 
-Por êste povo que Deus levantou; 
-E o poder do alto céu vem hoje, vem, 
-Vem confirmar que Jesus já operou.
-
-Confessa, confessa Que Jesus Cristo hoje te libertou } bis
-```
-
-#### 112. EU TENHO UM AMIGO QUE ME AMA
-- https://music.youtube.com/watch?v=AWVIVcvBecY
-```
-Eu tenho um amigo que ama
-Me ama, me ama.
-Eu tenho um amigo que ama
-Seu nome é Jesus
-```
-
-#### 118. FORMOSA
-- Infelizmente não encontrei nenhuma gravação ainda
-```
-Formosa, formosa, formosa 
-É a palavra do Senhor 
-Formoso, formoso, formoso 
-É o evangelho de Jesus
-Divina, divina, divina
-É a doce paz que à alma dá
-Divino, divino, divivo
-Será encontrar o nosso Rei
-```
-
-#### 179. QUEM DA COM ALEGRIA
-- https://music.youtube.com/watch?v=D3hcgSSt95c
-```
-1. Quem dá com alegria como o sol brilhará.
-   como o sol brilhará, como o sol brilhará.
-   Quem dá com alegria como o sol brilhará.
-   e Deus recompensará.
-
-2. Quem ora sempre, sempre...
-
-3. Quem prega o Evangelho...
-```
-
-#### 185. NUNCA MAIS DEIXAREI JESUS
-- https://music.youtube.com/watch?v=WSWyA3pSg9M
-```
-Nunca mais, nunca mais deixarei Jesus 
-Nunca mais, nunca mais deixarei a cruz. 
-Eu tenho a certeza no meu coração 
-De ao chegar no céu, receber meu galardão.
-```
+#### [CLIQUE AQUI PARA VER A LISTA DETALHADA DOS HINOS E CORINHOS](./RESEARCH.md)

@@ -1,0 +1,203 @@
+Aqui está o índice completo, exatamente como consta no PDF original:
+- A B-I-B-L-I-A é a palavra 114
+- A Deus demos glória 173
+- Aflito e triste coração, Deus cuidará 91
+- A graça de Jesus jamais me faltará 87
+- Ainda hoje cai o fogo, glória a Deus 169
+- Ainda que os montes se abalem 191
+- Aleluia, aleluia, aleluia, aleluia, glória 73
+- Aleluia, sou um salvo 53
+- A minh'alma está cheia de paz 103
+- A minha casa humilde aqui 138
+- Ao findar o labor desta vida 75
+- Aos pés de Cristo eu quero estar 94
+- A Palavra de Deus é para mim um tesouro 176
+- A presença de Jesus enche o coração 37
+- As corôas nos esperam 161
+- Assentado aos pés de Cristo 14
+- Assim Deus nos amou 136
+- A Tua Palavra escondi no meu coração 40
+- A vitória é nossa pelo sangue de Jesus 145
+- Aviva-nos Senhor! Oh, dá-nos Teu Poder 154
+- Basta que me toques, Senhor 164
+- Bem de manhã o Senhor está conosco 107
+- Brilhando por meu Jesus, eu também 10
+- Cada dia com Cristo me enche com 157
+- Com Cristo no barco tudo vai muito bem 51
+- Com pena de ouro escrito está meu nome 174
+- Como é bom ser tendeiro 43
+- Crendo em Cristo Jesus vim obter 19
+- Cristo cura, sim! 39
+- Cristo, de Ti preciso! 46
+- Cristo é vitória, Cristo Jesus 156
+- Cristo Jesus é fiel amigo 18
+- Cristo Jesus hoje vai te curar 86
+- Cristo já nos preparou, um manjar 89
+- Cristo já ressuscitou, aleluia! 95
+- Dá-me um coração como o teu 5
+- Dentro em minh'alma canto a Ti, Eenhor 195
+- Desanimados? Não, não, não 61
+- Descansar, descansar nos braços do Senhor 124
+- Desde o dia em que aceitei Jesus 102
+- Deus a todos chama 126
+- Deus cuida de Ti 134
+- Deus prometeu com certeza chuvas 3
+- Do céu virá do céu virá 80
+- É assim que vai ser 193
+- Eia avante, irmãos alegres 142
+- Eia, crentes, avançai, nada de temer 100
+- Eis os milhões que, em trevas 162
+- Eis que à luta hoje sai Batalhão Quadrangualr 200
+- Eis que uma fonte aberta está 23
+- Eis que surge um povo forte 172
+- É isto que me faz cantar 44
+- Em Cristo sou salvo e vou para o céu 135
+- Em minh'alma a aurora já raiou 57
+- Entrega o teu caminho 119
+- Envia o teu poder 109
+- E se todos trabalharmos unidos 180
+- Esperei com paciência no Senhor 177
+- Espírito do Trino Deus, vem sobre mim 33
+- Está aqui, está aqui, está aqui 190
+- Esta é a casa de Deus 117
+- Estou alegre, alegre, estou alegre, alegre 141
+- Estou alegre, alegre, mui alegre 77
+- Estou seguindo a Jesus Cristo 47
+- Eu creio, eu creio, eu creio em meu Jesus 122
+- Eu já encontrei Cristo 76
+- Eu perdido pecador, longe do meu Jesus 7
+- Eu quero mais e mias de Cristo 62
+- Eu quero trabalhar por meu Senhor 66
+- Eu sou "cruzado" 106
+- Eu também, eu também 187
+- Eu te louvo, eu te louvo 184
+- Eu tenho gozo, gôzo, no meu coração 65
+- Eu tenho uma coroa lá no céu 59
+- Eu tenho um amigo que me ama 112
+- Eu venho como estou 64
+- Eu vivo, Senhor, porque Tu vives 116
+- Eu vou ali cantando e volto 43
+- Fala, Deus! fala, Deus! Toca-me com brasas 159
+- Filho meu, dá-me o teu coração 105
+- Finda a lida terreal, quando já 178
+- Firme nas promessas do meu Salvador 13
+- Foi Cristo que me salvou, aleluia! 55
+- Formosa, formosa, formosa 118
+- Glória a Deus, pois vencerei 196
+- Glória ao Salvador (aleluia) 84
+- Glória, glória, aleluia 183
+- Gôzo eu tenho em Jesus 58
+- Grande Deus, Teus fiéis reunidos vêm 148
+- Há vitória para mim 188
+- Já refulge a glória eterna de Jesus 1
+- Já se foi, já se foi 35
+- Jesus Cristo é muito bom, veio ao mundo 8
+- Jesus Cristo me falou que dará a salvação 50
+- Jesus é o amigo melhor 41
+- Jesus ia caminhando 4
+- Jesus me ama e quer salvar-me 31
+- Jesus, Pastor amado, vem hoje abençoar 182
+- Jesus salva, Jesus cura 145
+- Jesus, sim, vem do céu 32
+- Jesus, Teu nome satisfaz 21
+- Longe do Senhor andava 67
+- Manso e suave, Jesus está chamando 160
+- Maravilhoso é Cristo, incomparável 155
+- Me chamam "aleluia, aleluia" sou 113
+- Meu Brasil, grande nação 125
+- Meu coração canta de alegria 78
+- Meu coração transborda de alegria 123
+- Meu Pai é Juiz e Governador 15
+- Muitas vezes sou tentado, mas 108
+- Muitos acham que é suficiente 192
+- Nada temer, mas confiar 25
+- Na estrada de Damasco, onde Saulo 199
+- Não mais eu vivo, vive em mim Jesus 158
+- Noite feliz, noite feliz 93
+- No além do véu, no além do véu 128
+- No céu não há, no céu não hà 166
+- No estrugir da última trombeta 198
+- No meu coração no meu coração 29
+- Nós cremos no Evangelho 62
+- Nós seguimos só a Ti, Senhor 137
+- Nós vamos lá, irmãos 166
+- Nunca mais, nunca mais deixarei Jesus 185
+- Nunca mais, nunca mais Jesus Cristo 167
+- O anjo do Senhor, o anjo do Senhor 104
+- O caminho é estreitinho, mas eu sempre 26
+- Oh, estou muito feliz com Jesus 45
+- Oh, Igreja Apostólica, ide avante 101
+- Oh, oh! Cristo me salvou 129
+- Oh pecador vem à fonte 96
+- Oh, quão cego andei e perdido vaguei 16
+- Oh, que lindo está o céu 140
+- Oh, que saudosa lembrança tenho 130
+- O meu coração é só de Jesus 70
+- O mundo agora está de parabéns. 110
+- Ontem, hoje e eternamente o mesmo 85
+- Os pequeninos Jesus muito amou 97
+- O Pastor desta Igreja é Jesus 152
+- O pêso da minh'alma Jesus lançou no mar 121
+- Os cruzados se preparam para 143
+- O sangue Jesus me lavou 42
+- O teu pecado tu queres deixar? 2
+- Pai Celeste, ao Teu lado quero estar 20
+- Para que pecar, se sou salvo 9
+- Paz, paz, paz, com Cristo 175
+- Pescador de homem será 49
+- Pr'a mim, p'ra mim 147
+- Prega o Evangelho Quadrangular 149
+- Quando aceitei Jesus, renasci 92
+- Quando Cristo vier na glória 69
+- Quando me lembro do meu Senhor 132
+- Quando o sol brilhar em qualquer lugar 52
+- Quão bondoso amigo é Cristo 17
+- Que a beleza de Cristo se veja em mim 34
+- Que consolação tem meu coração 22
+- Quem dá com alegria, como o sol 179
+- Quem contar aqui se alegrá 197
+- Quem quer Jesus, levante a sua mão 159-A
+- Quem tem Jesus tem tudo 139
+- Quem tem sêde venha a Mim 189
+- Que mudança em mim fêz 165
+- Que maravilha, Jesus me amou 84
+- Que segurança, sou de Jesus 6
+- Queremos fogo, fogo do Consolador 83
+- Quero ser um vaso de bênçãos 30
+- Reveste-me, ó Deus de amor 120
+- Salvador amado, Cristo e Redentor 79
+- Santo Espíriteo, enche a minha vida 48
+- Se conversarmos com Jesus vai tudo bem 27
+- Seguindo a Jesus, passo a passo estou 56
+- Sempre confiando, sempre confiando 131
+- Senhor, manda já o Teu poder 54
+- Se no mundo te sentes cansado 99
+- Sim ou não, sim ou não 194
+- Soldados de Jesus Cristo, avante 133
+- Soldados de Jesus Senhor, cristãos 12
+- Somos os mensageiros das novas 181
+- Somos um pequeno povo mui feliz 68
+- Só o poder de Deus pode mudar teu ser 28
+- Somente pela fé, somente pela fé 111
+- Sou de Jesus, meu Mestre 38
+- Sou feliz, Cristo me salvou 36
+- Sou feliz porque sou de Cristo 81
+- Sou um soldado de Jesus 82
+- Subindo vou, sim, vou subindo 79
+- Todos devem conhecer 24
+- Todo o mundo deve amar a Cristo 170
+- Tua alma está ferida, magoado 90
+- Tua graça, ó Deus amado, vem 71
+- Tu que escutas a mensagem de perdão 150
+- Um dia Cristo voltará 88
+- Um, dois, três, quatro eu vou 127
+- Um rico de noite chegou a Jesus 11
+- Vamos subindo sempre, Deus conosco 60
+- Vamos todos à Igreja 144
+- "V" é Vitória, proclamai com 158
+- Vem, ó vem, fogo abrasador 74
+- Vem sem demora, querido Jesus 151
+- Vem, visita Tua Igreja 98
+- Vinde, meninos, vinde a Jesus 163
+- Vitória Deus dará a mim 171
+- Vou no trem das boas novas là do céu 115

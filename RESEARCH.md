@@ -92,6 +92,36 @@ Essa mensagem de poder, QUADRANGULAR!
 
 ## CORINHOS AVULSOS
 
+### 44. É ISTO QUE ME FAZ CANTAR
+- https://youtu.be/ymmWkCN6SRg?t=157
+```
+É isto que me faz cantar,
+É isto que me faz cantar,
+Dos meus pecados livres estou
+E para o Céu eu vou.
+É isto que me faz cantar.
+```
+
+### 48. SANTO ESPÍRITO
+- https://youtu.be/pVkktccRedA?t=211
+```
+Santo Espírito, enche a minha vida,
+Pois por Cristo eu quero brilhar.
+Santo Espírito, enche a minha vida,
+Usa-me as almas a salvar.
+Aleluia! Aleluia! Aleluia! dou ao Cristo Rei
+Aleluia! Aleluia! Aleluia! dou ao Rei
+```
+
+### 58. GÔZO EU TENHO EM JESUS
+- https://youtu.be/ymmWkCN6SRg?t=65
+```
+Gôzo eu tenho em Jesus
+Gôzo eu tenho em Jesus
+Meu coração alegra está
+Porque Jesus me valerá.
+```
+
 ### 62. MAIS DE CRISTO 
 - https://www.youtube.com/watch?v=_UUqU5hCTEk&t
 ```
@@ -102,6 +132,7 @@ Eu quero mais do seu viver.
 ```
 
 ### 110. O MUNDO AGORA ESTÁ DE PARABÉNS
+- https://youtu.be/ymmWkCN6SRg?t=89
 - https://music.youtube.com/watch?v=HaPAr69Bi3E
 ```
 O mundo agora está de parabéns, 
@@ -126,7 +157,7 @@ Seu nome é Jesus
 ```
 
 ### 118. FORMOSA
-- Nenhuma gravação encontrada
+- https://youtu.be/ymmWkCN6SRg?t=197
 ```
 Formosa, formosa, formosa 
 É a palavra do Senhor 
@@ -152,6 +183,7 @@ Será encontrar o nosso Rei
 ```
 
 ### 185. NUNCA MAIS DEIXAREI JESUS
+- https://youtu.be/amX33dU9jjA?t=78
 - https://music.youtube.com/watch?v=WSWyA3pSg9M
 ```
 Nunca mais, nunca mais deixarei Jesus 

@@ -1,5 +1,19 @@
 # Hinos e Corinhos Avulsos
 
+```
+.
+├── assets
+│   ├── foursquare-hymnal-of-standard-song-evangelism.png
+│   ├── hinos-e-corinhos-avulsos-post-facebook.png
+│   └── tenda-do-cambuci-1954.jpg
+├── COMPARE.md
+├── Hinos e Corinhos Avulsos - 1960.pdf
+├── INDEX.md
+├── LICENSE
+├── README.md
+└── RESEARCH.md
+```
+
 Busca por livreto contendo os hinos ou corinhos que eram cantados no inicioa da Igreja do Evangelho Quadrangular no Brasil.
 https://evangelhoquadrangular.com.br/sobre-hino-oficial/ Este site cita a existência desses hinários em português:
 
@@ -43,6 +57,16 @@ Quanto ao **Hinos e Corinhos Avulsos** encontrei um exemplar físico sendo vendi
 - **107.** Bem de manhã o Senhor está conosco
 - **108.** Muitas vezes sou tentado, mas
 - **109.** Envia o teu poder
+
+### No Tempo das Tendas
+
+- **Gravação de referência:** [No Tempo das Tendas - Medley #1](https://www.youtube.com/watch?v=ymmWkCN6SRg) — 5:54 min.
+- **Gravação de referência:** [No Tempo das Tendas - Medley #2](https://www.youtube.com/watch?v=AHS68azPRfU) — 5:39 min.
+- **Gravação de referência:** [No Tempo das Tendas - Medley #3](https://www.youtube.com/watch?v=pVkktccRedA) — 9:24 min.
+- **Gravação de referência:** [No Tempo das Tendas - Medley #4](https://www.youtube.com/watch?v=amX33dU9jjA) — 4:48 min.
+
+> O álbum/projeto _No Tempo das Tendas_ é associado à tradição musical histórica da IEQ. Uma fonte independente registra _No Tempo das Tendas_ como lançamento de 1996 pela Editora Quadrangular, associado a Genésio de Souza.
+> **Observação:** esta referência é utilizada como **registro de interpretação/canto**, não como afirmação de que esta seja a gravação original do hino ou sua fonte de composição.
 
 #### [CLIQUE AQUI PARA LER O ÍNDICE COMPLETO EM ORDEM ALFABÉTICA](./INDEX.md)
 

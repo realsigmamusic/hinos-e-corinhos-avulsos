@@ -38,7 +38,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Dentro em minh'alma canto a Ti, Eenhor 195
 - Desanimados? Não, não, não 61
 - Descansar, descansar nos braços do Senhor 124
-- Desde o dia em que aceitei Jesus 102
+- [Desde o dia em que aceitei Jesus 102](./research/desde-o-dia-em-que-aceitei-jesus.md)
 - Deus a todos chama 126
 - Deus cuida de Ti 134
 - Deus prometeu com certeza chuvas 3
@@ -50,7 +50,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Eis que à luta hoje sai Batalhão Quadrangualr 200
 - Eis que uma fonte aberta está 23
 - Eis que surge um povo forte 172
-- É isto que me faz cantar 44
+- [É isto que me faz cantar 44]()
 - Em Cristo sou salvo e vou para o céu 135
 - Em minh'alma a aurora já raiou 57
 - Entrega o teu caminho 119
@@ -66,14 +66,14 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Eu creio, eu creio, eu creio em meu Jesus 122
 - Eu já encontrei Cristo 76
 - Eu perdido pecador, longe do meu Jesus 7
-- Eu quero mais e mias de Cristo 62
+- [Eu quero mais e mais de Cristo 62]()
 - Eu quero trabalhar por meu Senhor 66
 - Eu sou "cruzado" 106
 - Eu também, eu também 187
 - Eu te louvo, eu te louvo 184
 - Eu tenho gozo, gôzo, no meu coração 65
 - Eu tenho uma coroa lá no céu 59
-- Eu tenho um amigo que me ama 112
+- [Eu tenho um amigo que me ama 112]()
 - Eu venho como estou 64
 - Eu vivo, Senhor, porque Tu vives 116
 - Eu vou ali cantando e volto 43
@@ -82,11 +82,11 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Finda a lida terreal, quando já 178
 - Firme nas promessas do meu Salvador 13
 - Foi Cristo que me salvou, aleluia! 55
-- Formosa, formosa, formosa 118
+- [Formosa, formosa, formosa 118]()
 - Glória a Deus, pois vencerei 196
 - Glória ao Salvador (aleluia) 84
 - Glória, glória, aleluia 183
-- Gôzo eu tenho em Jesus 58
+- [Gôzo eu tenho em Jesus 58]()
 - Grande Deus, Teus fiéis reunidos vêm 148
 - Há vitória para mim 188
 - Já refulge a glória eterna de Jesus 1
@@ -121,7 +121,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Nós cremos no Evangelho 62
 - Nós seguimos só a Ti, Senhor 137
 - Nós vamos lá, irmãos 166
-- Nunca mais, nunca mais deixarei Jesus 185
+- [Nunca mais, nunca mais deixarei Jesus 185]()
 - Nunca mais, nunca mais Jesus Cristo 167
 - O anjo do Senhor, o anjo do Senhor 104
 - O caminho é estreitinho, mas eu sempre 26
@@ -133,7 +133,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Oh, que lindo está o céu 140
 - Oh, que saudosa lembrança tenho 130
 - O meu coração é só de Jesus 70
-- O mundo agora está de parabéns. 110
+- [O mundo agora está de parabéns. 110]()
 - Ontem, hoje e eternamente o mesmo 85
 - Os pequeninos Jesus muito amou 97
 - O Pastor desta Igreja é Jesus 152
@@ -154,7 +154,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Quão bondoso amigo é Cristo 17
 - Que a beleza de Cristo se veja em mim 34
 - Que consolação tem meu coração 22
-- Quem dá com alegria, como o sol 179
+- [Quem dá com alegria, como o sol 179]()
 - Quem contar aqui se alegrá 197
 - Quem quer Jesus, levante a sua mão 159-A
 - Quem tem Jesus tem tudo 139
@@ -166,7 +166,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Quero ser um vaso de bênçãos 30
 - Reveste-me, ó Deus de amor 120
 - Salvador amado, Cristo e Redentor 79
-- Santo Espíriteo, enche a minha vida 48
+- [Santo Espíriteo, enche a minha vida 48]()
 - Se conversarmos com Jesus vai tudo bem 27
 - Seguindo a Jesus, passo a passo estou 56
 - Sempre confiando, sempre confiando 131

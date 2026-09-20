@@ -68,6 +68,6 @@ Quanto ao **Hinos e Corinhos Avulsos** encontrei um exemplar físico sendo vendi
 > O álbum/projeto _No Tempo das Tendas_ é associado à tradição musical histórica da IEQ. Uma fonte independente registra _No Tempo das Tendas_ como lançamento de 1996 pela Editora Quadrangular, associado a Genésio de Souza.
 > **Observação:** esta referência é utilizada como **registro de interpretação/canto**, não como afirmação de que esta seja a gravação original do hino ou sua fonte de composição.
 
-#### [CLIQUE AQUI PARA LER O ÍNDICE COMPLETO EM ORDEM ALFABÉTICA](./INDEX.md)
+#### [CLIQUE AQUI PARA LER O ÍNDICE COMPLETO EM ORDEM ALFABÉTICA](./index.md)
 
-#### [CLIQUE AQUI PARA VER A LISTA DETALHADA DOS HINOS E CORINHOS](./RESEARCH.md)
+#### [CLIQUE AQUI PARA VER A LISTA DETALHADA DOS HINOS](./RESEARCH.md)

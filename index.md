@@ -77,7 +77,7 @@ Aqui está o índice completo, exatamente como consta no PDF original:
 - Eu venho como estou 64
 - Eu vivo, Senhor, porque Tu vives 116
 - Eu vou ali cantando e volto 43
-- Fala, Deus! fala, Deus! Toca-me com brasas 159
+- [Fala, Deus! fala, Deus! Toca-me com brasas 159](./research/fala-deus.md)
 - Filho meu, dá-me o teu coração 105
 - Finda a lida terreal, quando já 178
 - Firme nas promessas do meu Salvador 13
